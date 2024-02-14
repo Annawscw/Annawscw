@@ -1,5 +1,6 @@
 ### Hi Im Anna  👋
 #### About me
+!
 <p> My perant own a farm, its in south head. On our farm we have free range chickens, a cat and a lot of horses. I have a horse called Rose which I like to ride around on the farm with my brother and also take horse riding lessons with a gril called Natily. Our cat has a very unusual name called Other Cat because she was a stray and we called her the other cat, as we originally had another stray called Puss Puss and she turned up later.  Puss Puss and Other Cat looked almost exactly the same with green eyes and black fur so we called the new cat, the Other Cat to identify her from Puss Puss. Sadly Puss Puss died of Cancer but Other Cat still lives to this day.
 
 HOBBIES/ WHAT I LIKE.
